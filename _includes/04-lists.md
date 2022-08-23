@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+Just a list of some of my favorite things! :smile:
+- Pasta
+- Video Games
+- Dramatic Movies
+- Chipotle (the spice + the fastfood)
